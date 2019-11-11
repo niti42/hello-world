@@ -1,2 +1,3 @@
 # hello-world
 my first git hub lesson
+Hi! I am Nithish kumar. I see every day as an oppotunity to learn something new; to rectify mistakes I made in the past. A lot of things interest me and I find it hard sometimes to fous on one, but I end up doing something which may or may not contribute to what I know already. Curiosity was a gift that was given to me by science; I tried my hands at many things like writing, poetry, watching and analysing movies, drawing and I had mixed results until I focused on science. Although I am not very good at it and make terrible mistakes, It gives me happiness that nothing else gives. I don't like to travel that much but I would try my best to do something that would make me more intimate towards mother nature for example trekking.   
